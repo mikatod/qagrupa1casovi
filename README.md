@@ -1,0 +1,2 @@
+# qagrupa1casovi
+primeri
